@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Owais-112
+- 👀 I’m interested in learning new things.
+- 🌱 I’m currently studying Artificial intelligence 
+- 💞️ I’m looking to work as an intern at software house.
+- 📫 Reach me through my email-(owaisshahani7@gmail.com)
